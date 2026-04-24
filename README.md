@@ -97,8 +97,8 @@ Yassmine  – 0625442697
 
 ## 👨‍💻 Développé par
 
-**Abdellatif El Hamaoui**  
-🔗 LinkedIn : https://www.linkedin.com/in/abdellatif-elhamaoui/
+**Ayoub Faradi**  
+🔗 LinkedIn : https://www.linkedin.com/in/ayoub-faradi/
 
 ---
 
